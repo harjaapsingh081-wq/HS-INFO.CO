@@ -1,1 +1,0 @@
-# HS-INFO.CO
